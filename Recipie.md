@@ -1,28 +1,3 @@
-# PRO-C26-MASTERCHEF-JUNIOR
-
-PalKova recipe
-
-PREP TIME:10 MINUTES
-
- COOK TIME:1 HOUR 30 MINUTES 
- 
-RESTING TIME:1/2 HOUR
-
- TOTAL TIME:2 HOURS
- SERVINGS:4
- 
- COURSE:SWEET
- 
- CUISINE:SRIVILLIPUTTUR
- 
- 
- INGREDIENTS -
-
-▢5 cup milk (full cream)
-
-▢¼ cup sugar
-
-
 INSTRUCTIONS
  
 firstly, in a large kadai take 5 cup milk. use good quality milk for more creamy texture.
